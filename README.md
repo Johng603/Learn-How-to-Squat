@@ -1,4 +1,4 @@
-# Learn-How-to-Squat![picture](hot-to-squat.jpg)
+# Learn-How-to-Squat![picture](how-to-squat.jpg)
 # Introduction:
 Squatting is an excercise that strengthens your thighs and glutes. It also builds core strength. Squatting can be a fun and safe excercise when done correctly. It's easy to learn! Make sure you have the following materials:
 * a bar 
